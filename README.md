@@ -1,1 +1,1 @@
-### "A person who never made a mistake never tried anything new" — Albert Einstein
+### "Strive not to be a success, but rather to be of value." — Albert Einstein
